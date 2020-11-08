@@ -1,0 +1,2 @@
+# inspiration
+Motivational thought
